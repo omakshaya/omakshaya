@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @omakshaya
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning .. everything?
